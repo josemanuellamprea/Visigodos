@@ -15,4 +15,4 @@ Los visigodos fueron distintos pueblos bárbaros que, sin encontrar oposición, 
 
 [National Geographic España](https://www.nationalgeographic.com.es/)
 
-![] (https://historia.nationalgeographic.com.es/medio/2019/12/12/el-final-de-don-rodrigo-la-derrota-visigoda_7472f644_1280x720.jpg)
+![] 
